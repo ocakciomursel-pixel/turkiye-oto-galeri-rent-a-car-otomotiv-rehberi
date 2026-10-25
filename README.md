@@ -1,6 +1,7 @@
 # 🚗 Türkiye Oto Galeriler (*.sahibinden.com & Arabam), Rent A Car & Otomotiv Mega Rehberi + Gmail CRM Paneli (5.439 Tekil Kayıt)
 
-> **⚡ Hemen İndir (Tam Arşiv + `OTO-GALERI-ARAYUZ-PANELI.html` Yerel CRM & Gmail Paneli):** [**👉 Polar.sh Üzerinden Tam Paketi İndir ($19)**](https://buy.polar.sh/polar_cl_49rHyJNmkVCU0Ls8uZZMzslN7VU16n8qfR95d4GqDqr)
+> **💳 Kredi Kartı İle Anında İndir (Tam Arşiv + `OTO-GALERI-ARAYUZ-PANELI.html` Yerel CRM & Gmail Paneli):** [**👉 Polar.sh Üzerinden Tam Paketi İndir ($19)**](https://buy.polar.sh/polar_cl_49rHyJNmkVCU0Ls8uZZMzslN7VU16n8qfR95d4GqDqr)
+> **☕ Alternatif Ödeme (Buy Me a Coffee / Apple Pay / Google Pay):** [**👉 Buy Me a Coffee İle Satın Al ($19 — https://buymeacoffee.com/gyGASwCvy0)**](https://buymeacoffee.com/gyGASwCvy0)
 > **👑 Türkiye 7 Sektör Mega Paket (83.437 Tekil Kayıt + 7 CRM Paneli — %55 İndirimli $69):** [**👉 7 Sektör Mega Paketi İncele**](https://buy.polar.sh/polar_cl_RgTIkA37wkaTCUhRZNlk4MrS4ACK2Ju9K0Met0JqmQP)
 > **🌐 Türkçe Detaylı Tanıtım & Vitrin Sayfası:** [**https://ocakciomursel-pixel.github.io/b2b-domain-contact-tech-enricher/turkiye.html**](https://ocakciomursel-pixel.github.io/b2b-domain-contact-tech-enricher/turkiye.html)
 
@@ -37,8 +38,8 @@ Kasko/trafik sigortası acenteleri, taşıt kredisi/finansman şirketleri, oto e
 
 ## 🚀 Tam Paketi ve Diğer 6 Türkiye Sektör Arşivini İndirin
 
-| Sektör Paketi | Tekil Kayıt | 05xx GSM | İndirme Bağlantısı |
-| :--- | :---: | :---: | :--- |
-| **👑 7 Sektör Türkiye Mega Paket (All-in-One Bundle)** | **83.437** | **64.218** | [**👉 Tümünü Al ($69)**](https://buy.polar.sh/polar_cl_RgTIkA37wkaTCUhRZNlk4MrS4ACK2Ju9K0Met0JqmQP) |
-| **🚗 Türkiye Oto Galeriler (*.sahibinden.com & Arabam), Rent A Car & Otomotiv Mega Rehberi + Gmail CRM Paneli (5.439 Tekil Kayıt)** | **5.439** | **3.872** | [**👉 Bu Paketi Al ($19)**](https://buy.polar.sh/polar_cl_49rHyJNmkVCU0Ls8uZZMzslN7VU16n8qfR95d4GqDqr) |
-| **🌐 Tüm Türkiye Sektörleri Tanıtım Vitrini** | **81 İl** | **Tam Kapsam** | [**👉 turkiye.html Vitrinine Git**](https://ocakciomursel-pixel.github.io/b2b-domain-contact-tech-enricher/turkiye.html) |
+| Sektör Paketi | Tekil Kayıt | 05xx GSM | Kredi Kartı (Polar) | Buy Me a Coffee |
+| :--- | :---: | :---: | :---: | :---: |
+| **👑 7 Sektör Türkiye Mega Paket (All-in-One Bundle)** | **83.437** | **64.218** | [**👉 Tümünü Al ($69)**](https://buy.polar.sh/polar_cl_RgTIkA37wkaTCUhRZNlk4MrS4ACK2Ju9K0Met0JqmQP) | [**☕ BMC ($69)**](https://buymeacoffee.com/gyGASwCvy0) |
+| **🚗 Türkiye Oto Galeriler (*.sahibinden.com & Arabam), Rent A Car & Otomotiv Mega Rehberi + Gmail CRM Paneli (5.439 Tekil Kayıt)** | **5.439** | **3.872** | [**👉 Bu Paketi Al ($19)**](https://buy.polar.sh/polar_cl_49rHyJNmkVCU0Ls8uZZMzslN7VU16n8qfR95d4GqDqr) | [**☕ BMC ($19)**](https://buymeacoffee.com/gyGASwCvy0) |
+| **🌐 Tüm Türkiye Sektörleri Tanıtım Vitrini** | **81 İl** | **Tam Kapsam** | [**👉 turkiye.html Vitrinine Git**](https://ocakciomursel-pixel.github.io/b2b-domain-contact-tech-enricher/turkiye.html) | [**☕ Destek & Ödeme**](https://buymeacoffee.com/gyGASwCvy0) |
